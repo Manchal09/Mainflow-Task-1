@@ -27,4 +27,4 @@ Contributions are welcome! Feel free to open an issue or submit a pull request w
 
 📧 Contact
 
-For any questions or feedback, please reach out via email at preetam100832@gmail.com
+For any questions or feedback, please reach out via email at manchal0904@gmail.com
